@@ -6,10 +6,8 @@
 
 I want to present you best, easy to understand yet affordable course so that it not only helps you to change your life but also love the tech just like i do. When i design courses, a lot of positivity and thought goes in as It's not just about rolling out another course but delivering you the prefect one. Certainly, i need money to run this platform, But priority is always education, tech education. 
 
-- 💻 learn Python,Sql,java, DSA, System Design, Machine Learning, Deep Learning & many more with sanjeet
-
 An investment in knowledge pays the best Interest </br>
-Do SIP with Wizanta  @  ₹ 600 / Monthly </br>
-JOIN WIZ-CLIQUE </br>
+Do SIP with Wizanta  @  ₹ 1000 / Monthly </br>
+JOIN WIZ-CLIQUE @ ₹ 99 </br>
 ## wizanta.com
 
