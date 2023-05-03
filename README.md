@@ -8,6 +8,6 @@ I want to present you best, easy to understand yet affordable course so that it 
 
 An investment in knowledge pays the best Interest </br>
 Do SIP with Wizanta  @  ₹ 999 / Monthly </br>
-JOIN WIZ-CLIQUE @ ₹ 99 </br>
+JOIN WIZ-CLIQUE @ ₹ 99 / Monthly </br>
 
 ### Thank You 🙂
