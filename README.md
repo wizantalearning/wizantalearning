@@ -10,3 +10,4 @@ An investment in knowledge pays the best Interest </br>
 Do SIP with Wizanta  @  ₹ 1000 / Monthly </br>
 JOIN WIZ-CLIQUE @ ₹ 99 </br>
 
+### Thank You 🙂
