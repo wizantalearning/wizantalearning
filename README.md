@@ -8,6 +8,6 @@ I want to present you best, easy to understand yet affordable course so that it 
 
 An investment in knowledge pays the best Interest :- </br>
 </br>
-learn Python,SQL in just  ₹ 999 / Monthly </br>
+We offer an affordable monthly membership plan at just  ₹ 999 / Monthly </br>
 
 ### Thank You 🙂
