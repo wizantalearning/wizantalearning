@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### Hey There Everyone,👋
 ## Sanjeet here !!
 <img align="right" alt="Coding" width="350" src="https://media2.giphy.com/media/l378c04F2fjeZ7vH2/giphy.gif?cid=790b7611a2fb3de2156eddeea778a089c8659b78b79cd629&rid=giphy.gif&ct=g">
