@@ -6,6 +6,6 @@ I want to present you best, easy to understand yet affordable course so that it 
 
 #### *An investment in knowledge pays the best Interest :- 
 
-🥳 We offer an affordable monthly membership plan at just  ₹ 999 / Monthly</br>
+🥳 We offer an affordable monthly membership plan at just  ₹ 1999 / Monthly</br>
 🫂 Contact : +91 8100187114 , Mail : wizanta.official@gmail.com 
 #### Thank You 🙂
